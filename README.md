@@ -3,5 +3,5 @@
 <p> ·˚ ༘₊· ͟͟͞͞꒰➳ O Paranormal não vem para nossa realidade de maneira facil! 
 </p>
 <p>
-  <img src="9602fc2f1be9afc8eec958ce7e176189.jpg"width="500" />
+  <img src="5711133a-2baf-4577-a6ed-1697178f5be4.jpg"width="500" />
 </p>
